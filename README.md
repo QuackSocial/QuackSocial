@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @QuackSocial
+- 👀 I’m interested in decentralized structures
